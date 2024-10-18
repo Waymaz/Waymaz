@@ -9,7 +9,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1UZMyr41YIZK1WmbflzpaJjB3pfLddOMk/view](https://drive.google.com/file/d/1UZMyr41YIZK1WmbflzpaJjB3pfLddOMk/view)
 
-- ⚡ Fun fact **I like challenging myself to reach for greater heights**
+- ⚡ Fun fact **I like challenging myself to reach greater heights**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
